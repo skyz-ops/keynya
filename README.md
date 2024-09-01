@@ -2,7 +2,7 @@
 
 <img width="500" src="https://dafunda.com/wp-content/uploads/2021/01/Karakter-Hunter-x-Hunter-Yang-Kuat-Menurut-Hisoka.jpg">
  
- > This script is virdark bug 
+ > This script is key virdark bug 
  
 ### Give A Star
 
